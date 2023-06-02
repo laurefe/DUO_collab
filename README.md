@@ -1,1 +1,1 @@
-c'est suoer cette collab
+C'est suPer cette colab
